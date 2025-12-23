@@ -1,12 +1,11 @@
- ## what 
+what
  <img width="236" height="39" alt="image" src="https://github.com/user-attachments/assets/0845f04e-8042-4d7b-8d9e-0728daca40bb" />
 
  yOU ACTUALLY MADE YOUR USER MCFLIES WHAT HAHAHAH
 
  haruna was here ^u^
 
-![1000007155](https://github.com/user-attachments/assets/cc3f7208-fc91-49a0-a475-e1bfb0967e2b)
-I drew Spamton :)
+
 
 <!--
 **chipwhisp/chipwhisp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

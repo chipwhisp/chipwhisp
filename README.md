@@ -3,9 +3,7 @@ I mean,... YOU made your name that...
 
  /yOU ACTUALLY MADE YOUR USER MCFLIES WHAT HAHAHAH
 
- -haruna was here ^__^
-
-IDKHBTFM nation rise !!
+IDKHBTFM nation rise
 ![1000007363](https://github.com/user-attachments/assets/593b62d3-daff-4c20-a7da-7908415d2904)
 
 

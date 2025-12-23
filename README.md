@@ -3,6 +3,11 @@
 
  yOU ACTUALLY MADE YOUR USER MCFLIES WHAT HAHAHAH
 
+ haruna was here ^u^
+
+![1000007155](https://github.com/user-attachments/assets/cc3f7208-fc91-49a0-a475-e1bfb0967e2b)
+I drew Spamton :)
+
 <!--
 **chipwhisp/chipwhisp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

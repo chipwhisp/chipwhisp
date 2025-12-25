@@ -4,6 +4,5 @@
 you keep making straws STOP nate
 STOP!!!! ii REPEAT
 
-**mmerry christom**
-
 i forgot github is about actually coding
+how to make readme

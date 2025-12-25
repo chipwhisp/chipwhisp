@@ -4,5 +4,4 @@
 you keep making straws STOP nate
 STOP!!!! ii REPEAT
 
-i forgot github is about actually coding
-how to make readme
+How to code.... I dont know how to code guys. Guys. And i made a github..... 

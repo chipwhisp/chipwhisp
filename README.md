@@ -12,3 +12,6 @@ Imagine.
 
 im gonna make my strawpage kd inspired wow
 as if ill even finish it
+
+
+DELTARUNE PLAYERS HOW DO YOU BEAT JEVIL 

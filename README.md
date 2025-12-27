@@ -1,4 +1,4 @@
-Hey, check out these insys members aswell while your here? Thanks.
+Hey, check out these insys members,
 
 @Calebnate - Noli
 @MrHolographic - Sparky 

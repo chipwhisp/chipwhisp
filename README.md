@@ -1,7 +1,3 @@
-INSYS
--------
-@Calebnate - Noli
-@MrHolographic - Sparky 
 
 ------------
 GUYS HAPPY BIRTHDAY HAPPY BIRTHDAY TO @PWNEDBYITRAPPED GO SAY HAPPY BIRTHDAY TO THEM!!! NOW!!!! 27. Dec

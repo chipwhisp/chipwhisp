@@ -1,7 +1,7 @@
 
 ----------
 
-TOMORROW!!! 2026!!! Woohoo!
+🥂🥂 CHEERS ITS NEW YEARS!!!! Happy new years eve everyone!
 
 How to code.... I dont know how to code guys. Guys. And i made a github..... 
 Imagine.

@@ -1,7 +1,4 @@
 
 ----------
 
-🥂🥂 Happy new years eve everyone!
-
-How to code.... I dont know how to code guys. Guys. And i made a github..... 
-Imagine.
+I watched the Spiderverse movies yesterday. Now i really like Spidernoir.

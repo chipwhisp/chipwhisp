@@ -1,8 +1,12 @@
 
+
 ----------
 
-‎‎ ‎‎⠀‎‎ ‎‎⠀‎‎⠀‎‎♠ 　　 Chance⠀﹒ ⠀William⠀ ⠀⠀⠀⠀⠀He / They ⠀ ⠀ ➼  ⠀ Enby　 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀︶⠀⠀Fictkin⠀ ݁⠀⠀⠀⠀
+I got spiderman posters guys. SPIDERMAN POSTERS. Thank you dad
 
+----------
+
+I like typing like this. but i also wanna type like this
 
 ----------
 

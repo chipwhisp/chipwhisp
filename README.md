@@ -1,6 +1,10 @@
-[ 3.Jan. 2026 ]
+[ 3. Jan. 2026 ]
 
-Today was pretty nice. I got posters. <:)!
+Today was pretty nice. I got posters!
+Hope you guys all have a great start into the year so far 
+
+I CANT HEAR YOU LALLALALAL HHAHAHAHGDJDHB 
+Reminder to remake pronouns.cc and strawpage... Maybe. 
 
 ----------
 

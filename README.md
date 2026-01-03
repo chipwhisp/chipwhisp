@@ -3,8 +3,7 @@
 Today was pretty nice. I got posters!
 Hope you guys all have a great start into the year so far 
 
-I CANT HEAR YOU LALLALALAL HHAHAHAHGDJDHB 
-Reminder to remake pronouns.cc and strawpage... Maybe. 
+Reminder to remake pronouns.cc and strawpage, Once i get home.
 
 ----------
 
@@ -22,10 +21,3 @@ Happy new years by the way!
 ![1000008251](https://github.com/user-attachments/assets/4f85f067-397b-4ab1-b642-0020f41056db)
 
 ----------
-
-DNI : 
-Dark/Proshippers, Pedophiles, Zoophiles, Etc. Stuff you usually see in DNI lists.
-
-INT :
-People. :)
-

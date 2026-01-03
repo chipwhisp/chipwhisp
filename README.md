@@ -4,6 +4,10 @@ Today was pretty nice. I got posters!
 Hope you guys all have a great start into the year so far 
 
 Reminder to remake pronouns.cc and strawpage, Once i get home.
+...When are we going home.
+
+God i hate this.
+
 
 ----------
 

@@ -1,6 +1,10 @@
-Hi.
+[ 3.Jan. 2026 ]
+
+Today was pretty nice. I got posters. <:)!
 
 ----------
+
+[ 1. Jan. 2026 ]
 
 Spiderman, spiderman does whatever a spider can
 

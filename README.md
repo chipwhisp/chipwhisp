@@ -1,3 +1,5 @@
+spencer was here :3n
+
 [ 3. Jan. 2026 ]
 
 Today was pretty nice. I got posters!

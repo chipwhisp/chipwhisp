@@ -1,6 +1,6 @@
 [ 4. Jan. 2026 ]
 
-Gooood morning. I had this weird dream where i was getting lobotomized. Great start into the day, huh?
+Gooood morning. I had this weird dream where i was getting lobotomized. Huh?
 
 
 [ 3. Jan. 2026 ]

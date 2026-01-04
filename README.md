@@ -1,6 +1,9 @@
 [ 4. Jan. 2026 ]
 
 <:)
+Your not getting me........
+
+NO SHUT UP HARUNA
 
 
 Gooood morning. I had this weird dream where i was getting lobotomized. Huh?

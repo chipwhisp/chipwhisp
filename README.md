@@ -11,12 +11,6 @@ Thats not me.... Not me.
 I DONT CARRRRE!!!!!!!!
 
 
-How do i delete repositories. All of these old ones are from my SYStem.
-
-
-
-Gooood morning. I had this weird dream where i was getting lobotomized. Huh?
-
 [ 3. Jan. 2026 ]
 
 Today was pretty nice. I got posters.

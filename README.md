@@ -1,10 +1,7 @@
 [ 4. Jan. 2026 ]
 
+<:)
 
-Punches
-
-Nuh UH!!!!!
-I WILL!!!! I WILL AND YOU CANT STOP ME NATE
 
 Gooood morning. I had this weird dream where i was getting lobotomized. Huh?
 

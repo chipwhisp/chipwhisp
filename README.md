@@ -1,10 +1,8 @@
 [ 4. Jan. 2026 ]
 
+Honestly, Forsaken's getting pretty boring. 
 
-im seeing evanescene in september
-
-ow yeah
-
+Slowly. Like... Im still in the fandom. But the game is getting boring. My opinion.
 
 [ 3. Jan. 2026 ]
 

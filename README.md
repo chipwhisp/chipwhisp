@@ -10,9 +10,8 @@ OH MY GODDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD
 
 Ho.
 
-Thats not me.... Not me. 
-(I WILL KILL YOU LANA.)
-
+Thats not me.... Thats NOT me Lana.
+We should keep you locked up in the basement, Right guys? I mean your kinda coo-coo crazy yknow.... 
 
 I DONT CARRRRE!!!!!!!!
 

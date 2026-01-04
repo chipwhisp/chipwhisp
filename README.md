@@ -1,6 +1,12 @@
 [ 4. Jan. 2026 ]
 
 
+Thats not me.... Not me. 
+(I WILL KILL YOU)
+<img width="540" height="46" alt="image" src="https://github.com/user-attachments/assets/f00f5f24-5f28-4191-b62b-88859733c7e4" />
+
+
+
 How do i delete repositories. All of these old ones are from my SYStem.
 
 

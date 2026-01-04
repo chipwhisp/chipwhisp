@@ -1,5 +1,8 @@
 [ 4. Jan. 2026 ]
 
+CANCEL ITRAPPED!!!! NOW!!!!! 
+
+
 Gooood morning. I had this weird dream where i was getting lobotomized. Huh?
 
 

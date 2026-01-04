@@ -2,7 +2,7 @@
 
 
 
-can we lowkirkuenily kill *****ITRAPPED.***** he's harassing me
+Can we INSTEAD kill *****ITRAPPED.*****
 
 
 

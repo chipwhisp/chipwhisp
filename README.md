@@ -1,8 +1,7 @@
 [ 4. Jan. 2026 ]
 
-Honestly, Forsaken's getting pretty boring. 
+Gooood morning. I had this weird dream where i was getting lobotomized. Great start into the day, huh?
 
-Slowly. Like... Im still in the fandom. But the game is getting boring. My opinion.
 
 [ 3. Jan. 2026 ]
 

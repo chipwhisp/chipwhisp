@@ -2,7 +2,7 @@
 
 
 
-Can we INSTEAD kill *****YOU????*****
+Can we instead kill *****YOU*****
 
 
 

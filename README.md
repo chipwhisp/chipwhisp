@@ -1,25 +1,23 @@
-spencer was here :3n
+
+
+
 
 [ 3. Jan. 2026 ]
 
-Today was pretty nice. I got posters!
-Hope you guys all have a great start into the year so far 
+Today was pretty nice. I got posters.
+Hope you guys all have a great start into the year so far.
 
-Reminder to remake pronouns.cc and strawpage, Once i get home.
-...When are we going home.
-
-God i hate this.
-
+Nevermind, I wanna go sleep. ...I'll finish my strawpage. 
 
 ----------
 
 [ 1. Jan. 2026 ]
 
-Spiderman, spiderman does whatever a spider can
+Spiderman, spiderman does whatever a spider can!
 
 I watched Spiderverse yesterday and now im suddenly obsessed. Full on.
 
-I really like Spidernoir if you couldnt tell by my discord... and github.
+I really like Spidernoir if you couldnt tell by my discord and github.
 
 ----------
 Happy new years by the way!

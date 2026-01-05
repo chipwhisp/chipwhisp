@@ -4,7 +4,7 @@ Write something here later.
 
 
 To do
-- Strawpage,
+- Strawpage
 - Put christmas decorations down
 
 ----------

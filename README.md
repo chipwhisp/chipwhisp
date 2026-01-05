@@ -6,6 +6,7 @@ Write something here later.
 To do
 - Strawpage
 - Put christmas decorations down
+- Finish my Deadpool drawing. <:)
 
 ----------
 

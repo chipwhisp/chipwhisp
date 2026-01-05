@@ -26,6 +26,8 @@ I watched Spiderverse yesterday and now im suddenly obsessed. Full on.
 
 I really like Spidernoir if you couldnt tell by my discord and github.
 
+Ive actually watched it a couple times, But that was like... 5 years ago? 
+
 ----------
 Happy new years by the way!
 

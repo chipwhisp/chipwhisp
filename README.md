@@ -4,9 +4,8 @@ Write something here later.
 
 
 To do
-- strawpage,
-- prn.cc
-- put christmas decorations down
+- Strawpage,
+- Put christmas decorations down
 
 ----------
 

@@ -1,11 +1,5 @@
 [ 5. Jan. 2026 ]
 
-I got SPIDERMAN STAMPS!!!!! LOOOK!!!!! 
-Thank you Haruna!
-![WIN_20260105_20_45_18_Pro](https://github.com/user-attachments/assets/26e402ee-0bf2-44b6-bb26-c616226fc09b)
-
-
-Write something here later.
 
 
 To do

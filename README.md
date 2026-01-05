@@ -1,3 +1,8 @@
+
+hi spencr here : 3
+
+THIS IS MY GITHUB
+
 [ 5. Jan. 2026 ]
 
 I GOT SPIDERMAN STAMPS!!!!! 

@@ -1,19 +1,12 @@
-[ 4. Jan. 2026 ]
+[ 5. Jan. 2026 ]
+
+Write something here later.
 
 
-
-Can we instead kill *****YOU*****
-
-
-
-OH MY GODDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDDD 
-
-Ho.
-
-Thats not me.... Thats NOT me Lana.
-We should keep you locked up in the basement, Right guys? I mean your kinda coo-coo crazy yknow.... 
-
-I DONT CARRRRE!!!!!!!!
+To do
+- strawpage,
+- prn.cc
+- put christmas decorations down
 
 ----------
 

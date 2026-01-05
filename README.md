@@ -1,6 +1,7 @@
 [ 5. Jan. 2026 ]
 
-
+I GOT SPIDERMAN STAMPS!!!!! 
+Reminder to post a picture here.
 
 To do
 - Strawpage

@@ -3,11 +3,8 @@
 
 [ 6. Jan. 2026 ]
 
-yes -S
-
-hi twin -S
-
-HELP WHAT -S
+hi twin -spencer
+no this is th only way i can talk rn -spencer
 
 --------
 

@@ -4,6 +4,7 @@
 [ 6. Jan. 2026 ]
 
 hi twin -spencer
+
 no this is th only way i can talk rn -spencer
 
 --------

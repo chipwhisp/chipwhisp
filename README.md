@@ -3,17 +3,12 @@
 I have school tomorrow... Man. Break felt really fast.
 
 
-
-
-
 ----------
 
 [ 6. Jan. 2026 ]
 
 
-hi twin -spencer
-
-no this is th only way i can talk rn -spencer
+Nothing here.
 
 --------
 

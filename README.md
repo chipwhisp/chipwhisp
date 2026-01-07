@@ -39,8 +39,6 @@ Spiderman, spiderman does whatever a spider can!
 
 I watched Spiderverse a few days ago, and now im suddenly obsessed. Full on.
 
-I really like Spidernoir if you couldnt tell by my Discord and Github.
-
 Ive actually watched it a couple times, But that was like... 5 years ago? 
 
 ----------

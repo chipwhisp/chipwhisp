@@ -1,14 +1,6 @@
-[ 7. Jan. 2026 ]
+[ 9. Jan. 2026 ]
 
-I have school tomorrow... Man. Break felt really fast.
-
-
-----------
-
-[ 6. Jan. 2026 ]
-
-
-Nothing here.
+Not gonna be writing here for some time!
 
 --------
 

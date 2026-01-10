@@ -1,6 +1,3 @@
-[ 9. Jan. 2026 ]
-
-Not gonna be writing here for some time!
 
 --------
 

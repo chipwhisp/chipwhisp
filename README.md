@@ -1,3 +1,9 @@
+Chance, William, Noir, Wild or whatever other name youd prefer calling me!
+He/They, Enby
+Fictionkin
+
+Um... Rentry soon. Bye.
+
 
 --------
 

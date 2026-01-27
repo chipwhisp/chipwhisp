@@ -4,9 +4,11 @@
 
 About me!
 
-Hi, You can refer to me as William, Chance, Spider-Noir, Or any other names you know or as you prefer calling me.
+Hi, You can refer to me as William, Chance, Spider-Noir, Or any other names you know or as you prefer calling me <:)
 
-Im mostly active on Discord and Ponytown, I dont share some of my socials unless i've talked to you before.
+BYI -
+
+I *may* come off as rude or dry, because of the way i type. I'm sorry about that. :_)
 
 ---------
 

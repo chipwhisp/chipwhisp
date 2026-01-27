@@ -19,8 +19,10 @@ I *may* come off as *rude or dry, because of the way i type. I'm sorry about tha
 ---------
 
 Interact -
+
 *Anyone can talk to me if theyd want to, Though if your talking to me through Ponytown please whisper me!* I'm mostly offtab, and *i can't see messages if they aren't whispered to me! Thank you!*
 
 *DNI -*
+
 *Trump Supporters, Nazis, Pedophiles, SAbusers, Zoophiles, And other problematic people.
 Im also not quite fond of Vivziepop fans. ( If you like any of their creations thats completely fine, I meant Vivziepop. Not the show.)*

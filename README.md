@@ -2,13 +2,19 @@
 
 ----------
 
-About me!
+Reading my rentry or signing my atabook would be much appreciated! Thank you!
+
+----------
 
 Hi, You can refer to me as William, Chance, Spider-Noir, Or any other names you know or as you prefer calling me <:)
 
+Mostly offtab when im on Ponytown, You can always whisper me if wanted.
+
+---------
+
 BYI -
 
-I *may* come off as rude or dry, because of the way i type. I'm sorry about that. :_)
+I *may* come off as rude or dry, because of the way i type. I'm sorry about that.
 
 ---------
 

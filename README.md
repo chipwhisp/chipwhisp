@@ -5,3 +5,5 @@
 *Reading my rentry or signing my atabook would be much appreciated! Thank you!*
 
 ----------
+
+*Keep in mind that i will freely block anyone if i dislike them. Mostly if they don't respect my boundaries, or are rude to me and my pals.*

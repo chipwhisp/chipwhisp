@@ -6,6 +6,4 @@
 
 ----------
 
-*Keep in mind that i will freely block anyone if they harrass me or my friends, dont respect my boundaries, or are problematic.*
 
-*...Though of course i don't go around blocking people randomly*

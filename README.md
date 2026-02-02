@@ -1,3 +1,5 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Wherever+I+go+,;The+wind+follows+.)](https://git.io/typing-svg)
+
 
 ----------------
 ![](https://files.catbox.moe/5fmrtn.jpg)

@@ -9,8 +9,10 @@ This is getting worked on right now!
 
 William, Noir, Jack, or any other names you refer to me as.
 
-He / they
-Fictionkin - Bisexual - AMAB
+-------------
 
- Mostly on Safe Server #1 when im on Ponytown.
- 
+- I may come off as rude, or dry because of the way i type and/or how i act. So sorry, it's a personal issue of mine.
+
+-  Talking isn't my strong suit, Especially if i don't know you. Im mostly very nervous around people i haven't interacted with yet.
+
+-  W2I, I don't see messages very quickly if you dont whisper me.

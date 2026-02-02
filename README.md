@@ -9,4 +9,6 @@ I did not need that mental image, thanks!
 
 I can't talk so im writing on my Read.me
 
+Im playing Dandys World Scott. Please join me Scott.
+
 ---------

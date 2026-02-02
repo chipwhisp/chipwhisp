@@ -1,6 +1,8 @@
-*Hi guy*
+I'm strangling you with a lasso Alan
 
-![1000008470](https://github.com/user-attachments/assets/fe517b77-2da0-497d-bdb4-200f2f774e48)
+ty fam 
+
+I did not need that mental image, thanks!
 
 
 ---------

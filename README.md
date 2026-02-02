@@ -1,4 +1,4 @@
-I'm strangling you with a lasso Alan
+I'm strangling you with a lasso Guy Named Alan From Germany
 
 ty fam 
 

@@ -5,10 +5,8 @@ Scott, You have no idea how much I love this.
 
 thank you fam 
 
-I did not need that mental image, thanks!
-
 I can't talk so im writing on my Read.me
 
-Im playing Dandys World Scott. Please join me Scott.
+How dare you. Webslinger is the best Spiderperson of all time. Webslinger Webslinger Webslinger
 
 ---------

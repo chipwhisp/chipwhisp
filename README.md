@@ -1,4 +1,3 @@
-Rentry and Atabook are in recreation, So this'll do for now.
 
 ----------------
 ![](https://files.catbox.moe/5fmrtn.jpg)

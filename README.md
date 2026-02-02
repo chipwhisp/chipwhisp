@@ -11,8 +11,8 @@ William, Noir, Jack, or any other names you refer to me as.
 
 -------------
 
-- I may come off as rude, or dry because of the way i type and/or how i act. So sorry, it's a personal issue of mine.
+- I may come off as rude, or dry because of the way i type and/or how i act. Sorry!
 
--  Talking isn't my strong suit, Especially if i don't know you. Im mostly very nervous around people i haven't interacted with yet.
+-  Talking isn't my strong suit, so keep that in mind. I will grow more comfortable chatting if i get to know you better
 
 -  W2I, I don't see messages very quickly if you dont whisper me.

@@ -1,6 +1,6 @@
 I'm strangling you with a lasso Guy Named Alan From Germany
 
-ty fam 
+thank you fam 
 
 I did not need that mental image, thanks!
 

@@ -7,6 +7,8 @@
 
 William, Noir, Jack, or any other names you refer to me as
 
+He/they pronouns, Currently experimenting with She/her, so you can use that too.
+
 System, Fictionkin
 
 Rentry and Atabook are currently in recreation, so this'll do for now.

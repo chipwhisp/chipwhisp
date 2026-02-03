@@ -1,8 +1,6 @@
-I miss the marvel area too Dear Very Cool Spiderverse Cosplayer
+I miss the marvel area too.
 
-THANK YOU FOR COMPLIMENTING MY WEBSLINGER COSPLAY
-
-Peter Porker
+Thank you for complimenting my Webslinger cosplay!
 
 -----------
 

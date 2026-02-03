@@ -4,8 +4,7 @@ https://github.com/user-attachments/assets/0ed121e0-bd94-4134-921b-48b9da51d8f2
 
 Its these little interactions i get with strangers on the internet that makes me so joyfilled
 
-People are so kind. Thank you to the people who complimented me today, thank you thank you thank you.
-
+People are so kind. Thank you to the people who complimented me today!
 -----------
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Wherever+I+go+,;And+the+wind...+&color=808080)](https://git.io/typing-svg)

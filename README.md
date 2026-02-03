@@ -2,6 +2,8 @@ I miss the marvel area too.
 
 Thank you for complimenting my Webslinger cosplay!
 
+Yes. I love Webslinger so much. You guys wouldnt get it...
+
 -----------
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Wherever+I+go+,;And+the+wind...+&color=808080)](https://git.io/typing-svg)

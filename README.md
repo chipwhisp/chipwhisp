@@ -7,10 +7,9 @@
 
 William, Noir, Jack, or any other names you refer to me as
 
-He/they pronouns
 
 Rentry and Atabook are currently in recreation, so this'll do for now.
 
-BYI: I am VERY awkward near/in big crowds of people.
+BYI: I am VERY awkward in big crowds of people.
 
 

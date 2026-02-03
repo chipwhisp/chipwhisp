@@ -7,7 +7,10 @@
 
 William, Noir, Jack, or any other names you refer to me as
 
+Fictionkin, He/they
 
 Rentry and Atabook are currently in recreation, so this'll do for now.
 
------
+-------
+
+

@@ -1,3 +1,6 @@
+People are so kind. Thank you to the people who complimented me today thank you thank you thank
+
+
 I miss the marvel area too.
 
 Thank you for complimenting my Webslinger cosplay!

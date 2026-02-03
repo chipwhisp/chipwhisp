@@ -1,12 +1,8 @@
+![yes](https://tenor.com/nwDSy1UpTm8.gif)
+
 Its these little interactions i get with strangers on the internet that makes me so joyfilled
 
-People are so kind. Thank you to the people who complimented me today thank you thank you thank
-
-I miss the marvel area too.
-
-Thank you for complimenting my Webslinger cosplay!
-
-Yes. I love Webslinger so much. You guys wouldnt get it...
+People are so kind. Thank you to the people who complimented me today, thank you thank you thank you.
 
 -----------
 

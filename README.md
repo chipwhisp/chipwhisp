@@ -2,7 +2,7 @@ Yeehaw!
 
 https://github.com/user-attachments/assets/0ed121e0-bd94-4134-921b-48b9da51d8f2
 
-Its these little interactions i get with strangers on the internet that makes me so joyfilled
+Its these little interactions i get with strangers on the internet that make me so happy.
 
 People are so kind. Thank you to the people who complimented me today!
 

@@ -7,7 +7,7 @@
 
 William, Noir, Jack, or any other names you refer to me as
 
-He/they pronouns, Currently experimenting with She/her, so you can use that too.
+He/they pronouns
 
 System, Fictionkin
 

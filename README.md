@@ -1,5 +1,6 @@
-People are so kind. Thank you to the people who complimented me today thank you thank you thank
+Its these little interactions i get with strangers on the internet that makes me so joyfilled
 
+People are so kind. Thank you to the people who complimented me today thank you thank you thank
 
 I miss the marvel area too.
 

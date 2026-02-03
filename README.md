@@ -1,4 +1,6 @@
-![yes](https://tenor.com/nwDSy1UpTm8.gif)
+Yeehaw!
+
+https://github.com/user-attachments/assets/0ed121e0-bd94-4134-921b-48b9da51d8f2
 
 Its these little interactions i get with strangers on the internet that makes me so joyfilled
 

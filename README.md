@@ -10,7 +10,7 @@ People are so kind. Thank you to the people who complimented me today, thank you
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Wherever+I+go+,;And+the+wind...+&color=808080)](https://git.io/typing-svg)
 
-----------------
+
 ![](https://files.catbox.moe/5fmrtn.jpg)
 
 William, Noir, Jack, or any other names you refer to me as

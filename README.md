@@ -14,10 +14,11 @@
 
 **William**, **Noir**, or **Jack**
 
-Since we’re a system, our tone or behavior can shift now and then
+----------
 
 Rentry and Atabook are currently in recreation, so this'll do for now.
 
+Keep in mind that we’re a system, our tone or behavior can shift now and then
 
 
 

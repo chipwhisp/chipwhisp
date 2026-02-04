@@ -14,6 +14,8 @@
 
 **William**, **Noir**, or **Jack**
 
+Keep in mind that we are a plural/system, which says why we might act differently at times
+
 Rentry and Atabook are currently in recreation, so this'll do for now.
 
 

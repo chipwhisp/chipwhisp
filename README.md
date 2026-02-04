@@ -1,8 +1,4 @@
-I use this GIF way too much
-
-
-https://github.com/user-attachments/assets/2856c91d-988d-44e0-b14d-ae18de1a4126
-
+Guy
 
 
 -----------

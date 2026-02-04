@@ -7,11 +7,11 @@
 
 ![](https://files.catbox.moe/5fmrtn.jpg)
 
-William, Noir, Jack, or any other names you refer to me as
+**William**, **Noir**, **Jack**, or any other names you refer to me as
 
-Fictionkin, He/they
+Fictionkin, **He/they**
 
-System
+**System**
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=The+wind+follows....;Smells+like+rain.+&color=808080)](https://git.io/typing-svg)
 

@@ -7,9 +7,12 @@
 
 ![](https://files.catbox.moe/5fmrtn.jpg)
 
-**William**, **Noir**, or **Jack**
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=The+wind+follows....;Smells+like+rain.+&color=808080)](https://git.io/typing-svg)
+
+-----------
+
+**William**, **Noir**, or **Jack**
 
 Rentry and Atabook are currently in recreation, so this'll do for now.
 

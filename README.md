@@ -13,6 +13,9 @@ Fictionkin, **He/they**
 
 **System**
 
+BYI - I dont use tonetags, Everything i say is taken as a joke and isnt meant seriously unless i say otherwise.
+
+
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=The+wind+follows....;Smells+like+rain.+&color=808080)](https://git.io/typing-svg)
 
 Rentry and Atabook are currently in recreation, so this'll do for now.

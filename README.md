@@ -12,3 +12,7 @@
 
 
 -----------
+
+- Spider-Noir Fictionkin if you couldnt tell by now.
+
+- Keep in mind that we are a system, our tone may shift now and then.

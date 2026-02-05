@@ -20,5 +20,8 @@ Rentry and Atabook are currently in recreation, so this'll do for now.
 
 Keep in mind that we’re a system, our tone or behavior can shift now and then
 
+I usually type like this!
+
+or this
 
 

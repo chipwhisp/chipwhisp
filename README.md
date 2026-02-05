@@ -10,6 +10,5 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=The+wind+follows....;Smells+like+rain.+&color=808080)](https://git.io/typing-svg)
 
 
-**William**, **Noir**, or **Jack**
 
 -----------

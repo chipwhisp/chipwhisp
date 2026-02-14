@@ -1,4 +1,4 @@
-Whisp2int, Mostly offtab
+
 
 -----------
 
@@ -13,8 +13,10 @@ Whisp2int, Mostly offtab
 
 
 -----------
+-----------
+------------
 
-- Spider-Noir Fictionkin if you couldnt tell by now.
+-  Spider-Noir Fictionkin if you couldnt tell by now.
 
 - Keep in mind that we are a system, our tone may shift now and then.
 - Im also barely online on ponytown unless someone else is fronting

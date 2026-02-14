@@ -18,4 +18,6 @@ HAHAHHAHA THE WEEK IS FINALLY OVER
 
 - Keep in mind that we are a system, our tone may shift now and then.
 
+- Im also barely online on ponytown unless someone else is fronting
+
 

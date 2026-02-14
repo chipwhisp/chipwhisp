@@ -1,4 +1,4 @@
-Whisp2int, Mostly offtab!
+Whisp2int, Mostly offtab
 
 -----------
 

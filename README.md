@@ -1,4 +1,4 @@
 
-  $\text{\color{#7c162e}Art by Puckishshsh on tumblr, go check them out!!!}$
-<img width="2048" height="1374" alt="1000013142" src="https://github.com/user-attachments/assets/4bf72b21-3300-4c14-9249-58121dd41cdb" />
+  $\text{\color{#7c162e}WIP}$
 
+  $\text{\color{#7c162e}William}$ <img width="20" height="20" alt="EFF2-FB13-6-D73-4-CC6-B9-B4-9-F6533305-D57" src="https://github.com/user-attachments/assets/ebe6359a-c755-4c2e-9b44-2007e7600792" />  $\text{\color{#7c162e}Ellernate}$

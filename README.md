@@ -1,2 +1,4 @@
 
-<img width="476" height="476" alt="ReddoonsGIF" src="https://github.com/user-attachments/assets/e06edddb-1368-4138-a280-a07129668233" />
+   $\text{\color{#7c162e} Art by Puckishshsh on tumblr, go check them out!}$
+
+<img width="2048" height="1374" alt="1000013142" src="https://github.com/user-attachments/assets/4bf72b21-3300-4c14-9249-58121dd41cdb" />

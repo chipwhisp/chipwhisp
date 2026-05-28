@@ -1,4 +1,2 @@
 
-   $\text{\color{#7c162e} Art by Puckishshsh on tumblr, go check them out!}$
-
-<img width="2048" height="1374" alt="1000013142" src="https://github.com/user-attachments/assets/4bf72b21-3300-4c14-9249-58121dd41cdb" />
+<img width="216" height="236" alt="pony-town-ellernate , kin-boop-lie-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/102d361a-6932-4754-9abf-7d2d5b1e887d" />

@@ -1,2 +1,1 @@
-
-<img width="216" height="236" alt="pony-town-ellernate , kin-boop-lie-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/102d361a-6932-4754-9abf-7d2d5b1e887d" />
+<img width="208" height="256" alt="pony-town-ellernate , kin-boop-sit-blinking-padded-ponyplush-4x (1)" src="https://github.com/user-attachments/assets/7821d9a3-a6be-48ae-96eb-6b1debc2bf1d" />

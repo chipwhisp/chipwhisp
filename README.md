@@ -1,4 +1,7 @@
-<img width="351" height="182" alt="Screenshot 2026-07-14 235438" src="https://github.com/user-attachments/assets/dac5f74d-bf8e-45b2-8ab4-039719ebeaad" />
+<img width="256" height="256" alt="mane" src="https://github.com/user-attachments/assets/fda1c8ed-5fd2-47f3-a649-86727d303a34" />
 
-Art by Rui_popTheOg on artfight!
+AC : weeklypear on x
+
+Call me William or Andy
+I like unstable n QUAG fridays, boundary breakers and weird people DNI
 

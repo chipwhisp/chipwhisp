@@ -1,4 +1,4 @@
-<img width="256" height="256" alt="mane" src="https://github.com/user-attachments/assets/fda1c8ed-5fd2-47f3-a649-86727d303a34" />
+<img width="1187" height="668" alt="Screenshot 2026-08-07 213121" src="https://github.com/user-attachments/assets/b6d399b0-afd0-49b0-befc-c550c80b7c28" />
 
 **ac : weeklypear on x**
 

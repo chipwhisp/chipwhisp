@@ -3,4 +3,4 @@
 **ac : weeklypear on x**
 
 Call me William or Andy :)                                                                                           
-I like unstable n anything videogame related
+I like unstable, marvel n anything videogame related, boundary breakers / problematic people DNI

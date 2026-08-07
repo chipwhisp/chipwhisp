@@ -2,7 +2,5 @@
 
 **ac : weeklypear on x**
 
-Call me William or Andy :)
-
-I like unstable n QUAG fridays, boundary breakers / weird people DNI
-
+Call me William or Andy :)                                                                                           
+I like unstable n anything videogame related

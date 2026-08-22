@@ -4,3 +4,5 @@
 Ill make this cool later
 
 Im almost always offtab and/or busy when online, so i may not respond to messages quickly. :_)
+
+I like marvel and mm12 media, ask me abt my other interests if you want

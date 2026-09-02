@@ -1,4 +1,4 @@
-working on this soon
+Working on this soon!
 
 i rarely respond quickly to whispers/messages or at all since im pretty caught up with a lot of stuff and most likely offtab. please dont take it as me ignoring you : _ )
 

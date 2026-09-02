@@ -4,4 +4,5 @@ i rarely respond quickly to whispers/messages or at all since im pretty caught u
 
 <details>      <summary>DNI</summary>        proshipper, darkshippers, racists, homophobes, the like. I also dislike plenty of vivziepop / dandys world fans as to multiple reasons. Aswell as if your under 13, PLEASE be cautious around me/IWEC as i may make an inappropriate joke here and there 　</details>
 
-art credits : **5er.ph1mss on tiktok** 
+<details>      <summary>art credits</summary>        5er.ph1mss on tiktok 　</details>
+

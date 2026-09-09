@@ -4,3 +4,4 @@
 
 ALT : [@spiderman-noir](https://github.com/spiderman-noir)
 
+BASIC DNI CRITERIA

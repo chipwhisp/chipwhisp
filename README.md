@@ -6,4 +6,4 @@ ALT : [@spiderman-noir](https://github.com/spiderman-noir)
 
 – updating this soon. eyes emoji
 
-– DNI pedophiles, zoophiles, racists, radqueers, homophobes, the like. basic dni criteria. I'm not quite fond of Vivziepop and Dandy's World fans either
+– DNI Pedophiles, zoophiles, racists, radqueers, homophobes, the like. I'm also not quite fond of Vivziepop and Dandy's World fans either.

@@ -6,4 +6,4 @@ ALT : [@spiderman-noir](https://github.com/spiderman-noir)
 
 – updating this soon. eyes emoji
 
-BASIC DNI CRITERIA 
+- Since I'm also interacting with a ton of people lately, please know that i dont tolerate interacting with problematic people in general including pedophiles, zoophiles, racists/rcta, radqueers, homophobes, the like. I'm not quite fond of Vivziepop/Dandy's World fans either.

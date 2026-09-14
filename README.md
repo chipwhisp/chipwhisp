@@ -5,3 +5,4 @@
 ALT : [@spiderman-noir](https://github.com/spiderman-noir)
 
 – updating this soon. eyes emoji
+BASIC DNI CRITERIA 

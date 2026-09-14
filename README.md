@@ -4,8 +4,4 @@
 
 ALT : [@spiderman-noir](https://github.com/spiderman-noir)
 
-<details>
-  <summary> !!!
-ㅤ</summary>
-  – Since I've been interacting with a lot of people lately please know that i do not tolerate interacting with zoophiles, pedophiles, racists, rcta, radqueers, homophobes, TERFs, Trump/ICE supporters and anything else problematic in general. thank you :)
-</details>
+I don't respond to messages at all or on time, please whisper me as im likely offtab :_)

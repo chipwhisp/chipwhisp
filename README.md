@@ -8,5 +8,5 @@
 
 pt-fantastic-hall ⠀⠀pt-heavyfictkin ⠀⠀⠀kaotown
 
-⠀:⠀) ⠀thank⠀ you⠀ all⠀!
+⠀:⠀D ⠀thank⠀ you⠀ all⠀!
 </details>

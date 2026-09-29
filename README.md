@@ -13,5 +13,5 @@
 ⠀
 pt-fantastic-hall ⠀⠀pt-heavyfictkin ⠀⠀⠀kaotown
 
-⠀:⠀D ⠀thank⠀ you⠀ all⠀!
+⠀:] ⠀thank⠀ you⠀ all⠀!
 </details>

@@ -1,19 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/2epcgr.jpeg" alt=" " width="380">
+<img src="https://files.catbox.moe/lbpwbs.jpg" alt=" " width="500">
 
 
 ⠀
-
-
-<details>
-  <summary> 🕷️ 
-ㅤ</summary>
-⠀ 
-⠀
-
-  
-pt-fantastic-hall ⠀⠀pt-heavyfictkin ⠀⠀⠀kaotown
-
-⠀thank⠀ you⠀ all⠀⠀:] 
-</details>

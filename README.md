@@ -12,3 +12,6 @@
 <div align="center">
 
 <img src="https://files.catbox.moe/lbpwbs.jpg" alt=" " width="500">
+
+
+If there are any freaks in my following don't hesitate to let me know

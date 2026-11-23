@@ -19,4 +19,4 @@
 
  
  
-  If there are any freaks in my following don't hesitate to let me know
+  If there are any freaks in my following don't hesitate to let me know.
